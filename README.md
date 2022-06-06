@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Malit5
+- 👀 I’m interested in web designing 
+- 🌱 I’m currently learning on how to design great websites 
+- 💞️ I’m looking to collaborate on with smart web developers with great skills
+- 📫 How to reach me on the social media platforms
+---Instagram @ m.a.l.i.t._
+---Facebook @Ekima teke ..Also at Gmail henrymali40@gmail.com
